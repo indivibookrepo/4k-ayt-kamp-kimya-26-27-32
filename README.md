@@ -1,0 +1,1 @@
+# 4k-ayt-kamp-kimya-26-27-32
